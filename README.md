@@ -1,0 +1,6 @@
+![quetion5_obj ss](https://github.com/user-attachments/assets/f6f0d1f5-af52-4ce5-a15e-4d3a4b688b06)
+![quetion4_stu ss](https://github.com/user-attachments/assets/7ee61321-7521-4dc7-b8df-7aa468208e85)
+![quetion4_stu ss 2](https://github.com/user-attachments/assets/2752ed9c-a148-4b8a-8677-6d7f1c438303)
+![quetion3_object ss](https://github.com/user-attachments/assets/859f86e7-9ab0-4552-95bb-14b12de5ffb4)
+![quetion2_age ss](https://github.com/user-attachments/assets/c4af32dc-ed1b-4064-9b72-0565ac1fd632)
+![quetion1_card ss](https://github.com/user-attachments/assets/2a20ab78-b8ce-4f2b-89cd-41163d494901)
